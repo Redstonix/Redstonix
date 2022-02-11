@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Redstonix
-- 👀 I’m interested in go climibin
+- 👀 I’m interested in go climibing
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me: Discord (Redstonixx_#0003)
